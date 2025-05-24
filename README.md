@@ -4,4 +4,4 @@
 - 🌱 Learning B.Tech (CSM)
 - 🧠 Exploring Machine Learning and Generative AI
 
-📫 How to reach me: ww.linkedin.com/in/devraj-korgaonkar |  devraj09102004@gmail.com
+📫 How to reach me: www.linkedin.com/in/devraj-korgaonkar |  devraj09102004@gmail.com
